@@ -1,1 +1,1 @@
-bankai!!!!!
+ARIGATO SENSAI!!!!!!
